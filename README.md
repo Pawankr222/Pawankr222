@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Pawankr222
+- 👋 Hi, I’m Pawan Kumar
 
 - 🌱 I’m currently learning ...
 
